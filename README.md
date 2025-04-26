@@ -1,16 +1,12 @@
-## Hi there 👋
-
-<!--
-**NarcassisticLeader/NarcassisticLeader** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> <img width="1000" height="100" src="https://64.media.tumblr.com/de4c4f156e7d46e90e57aaf2190e6fa8/794d1ba06cddd4cf-88/s400x600/f85082814af1635dd6f104bc99ebf3e6192a0e7e.pnj"> </p>
+<p align="center"> $${\color{silver}"𝔐𝔶 \space 𝔫𝔞𝔪𝔢 \space 𝔦𝔰 \space 𝔬𝔣 \space 𝔫𝔬 \space 𝔦𝔪𝔭𝔬𝔯𝔱𝔞𝔫𝔠𝔢. \space 𝔚𝔥𝔞𝔱 \space 𝔞𝔟𝔬𝔲𝔱 \space 𝔶𝔬𝔲? \space 𝔇𝔬 \space 𝔶𝔬𝔲 \space 𝔯𝔢𝔪𝔢𝔪𝔟𝔢𝔯 \space 𝔶𝔬𝔲𝔯 \space 𝔱𝔯𝔲𝔢 \space 𝔫𝔞𝔪𝔢?"}$$
+<p align="center"> <img width="440" height="440" src="https://media.discordapp.net/attachments/1030285206134992946/1365827670356660354/result_6.png?ex=680eb9a4&is=680d6824&hm=3c4b93f5ca82331affba39b4b0b9ea002640812fabc5a680021ac87ce7e0da24&=&format=webp&quality=lossless"> </p>
+<p align= "center"> $${\color{mistyrose}𝒱𝑒𝑒/𝒱𝑒𝓁𝒾𝑜𝓃𝒶}$$
+$${\color{mistyrose}𝔑𝔲𝔪𝔟𝔢𝔯 \space ℑ, \space 𝔖𝔲𝔭𝔢𝔯𝔦𝔬𝔯 \space 𝔬𝔣 \space 𝔱𝔥𝔢 \space ℑ𝔫-𝔅𝔢𝔱𝔴𝔢𝔢𝔫}$$
+<p align="center"> <img width="900" height="70" src="https://64.media.tumblr.com/c4153c321a0f8afe0473bba118c568e8/49833ea7a3e178f3-5a/s400x600/5ab31e31b594b593c8e3a3929cd418aa5bc32e51.gifv"> </p>
+<p align= "center"> $${\color{mistyrose}16/𝔪𝔦𝔫𝔬𝔯}$$
+<p align= "center"> $${\color{mistyrose}𝔗𝔞𝔨𝔢𝔫}$$
+<p align= "center"> $${\color{mistyrose}"𝕴 \space 𝖋𝖊𝖊𝖑 \space 𝖙𝖍𝖊 \space 𝖊𝖒𝖕𝖙𝖎𝖓𝖊𝖘𝖘 \space 𝖜𝖍𝖊𝖗𝖊 \space 𝖒𝖞 \space 𝖈𝖔𝖒𝖕𝖆𝖓𝖎𝖔𝖓𝖘 \space 𝖔𝖓𝖈𝖊 \space 𝖘𝖙𝖔𝖔𝖉. \space 𝕴 \space 𝖙𝖔𝖔𝖐 \space 𝖙𝖍𝖊𝖒 \space 𝖋𝖔𝖗 \space 𝖌𝖗𝖆𝖓𝖙𝖊𝖉. \space 𝕬𝖓𝖉 \space 𝖓𝖔𝖜, \space 𝕴 \space 𝖍𝖆𝖛𝖊 \space 𝖓𝖔𝖙𝖍𝖎𝖓𝖌. \space 𝕸𝖞 \space 𝖋𝖎𝖗𝖘𝖙 \space 𝖘𝖚𝖗𝖌𝖊 \space 𝖔𝖋 \space 𝖊𝖒𝖔𝖙𝖎𝖔𝖓 \space 𝖎𝖓 \space 𝖞𝖊𝖆𝖗𝖘...𝖋𝖔𝖗 \space 𝖆𝖘 \space 𝖑𝖔𝖓𝖌 \space 𝖆𝖘 \space 𝕴 \space 𝖈𝖆𝖓 \space 𝖗𝖊𝖒𝖊𝖒𝖇𝖊𝖗...𝖆𝖓𝖉 \space 𝖎𝖙'𝖘...𝖑𝖔𝖓𝖊𝖑𝖎𝖓𝖊𝖘𝖘."}$$
+<p align= "right"> $${\color{mistyrose}𝔅𝔢𝔰𝔱 \space 𝔣𝔯𝔦𝔢𝔫𝔡𝔰: 𝔎𝔦𝔢/𝔊𝔯𝔢𝔞𝔱_𝔇𝔞𝔶}$$
+<p align="center"> <img width="120" height="75" src="https://64.media.tumblr.com/51988c4913f8ee359dc919162c6bb975/473928ea48888009-50/s100x200/1f9afe4383ba4068201c09d4c00104f5fec3b658.gifv"><img width="120" height="75" src="https://64.media.tumblr.com/fa02b46b8b5500870223b2129d7218a9/473928ea48888009-8b/s100x200/2497b93bee99cd43c3e6de6886b7b3bc46bcced7.pnj"><img width="120" height="75" src="https://64.media.tumblr.com/8a85c6a9d9f3997f12f4f78a6377ae17/562bc653002dd72e-58/s100x200/8367a0d1ce3f52623983a7d6bc8fe3118195f9f3.gifv"><img width="120" height="75" src="https://64.media.tumblr.com/e36c103321c554e6817f31327eb37c06/e8c9a5af56d6e4bf-87/s100x200/873f15f748d01e2abf2bda1804cbd7f87fc95190.pnj">
+<p align= "center"> $${\color{mistywhite}𝔏𝔦𝔣𝔢 \space 𝔞𝔰 \space 𝔦𝔰, \space 𝔦𝔰 \space 𝔪𝔦𝔰𝔢𝔯𝔞𝔟𝔩𝔢. \space 𝔅𝔲𝔱 \space 𝔴𝔦𝔱𝔥 \space 𝔶𝔬𝔲, \space 𝔦𝔱 \space 𝔦𝔰 \space 𝔞𝔠𝔠𝔢𝔭𝔱𝔞𝔟𝔩𝔢.}$$
