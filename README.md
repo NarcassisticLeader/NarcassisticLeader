@@ -1,5 +1,5 @@
 <p align="center"> <img width="1000" height="100" src="https://64.media.tumblr.com/d1daec2f8e389cf844bcd8d8d1c94cc3/ae2433434469ecfc-38/s400x600/1cf4826b78e64eb7d2135642b8d0942d1ce582cf.pnj"> </p>
-<p align="center"> "𝔗𝔥𝔦𝔰 \space 𝔪𝔦𝔤𝔥𝔱 \space 𝔤𝔢𝔱 𝔞 𝔩𝔦𝔱𝔱𝔩𝔢 𝔪𝔢𝔰𝔰𝔶, ℑ'𝔪 𝔰𝔲𝔯𝔢
+<p align="center"> "𝔗𝔥𝔦𝔰 𝔪𝔦𝔤𝔥𝔱 𝔤𝔢𝔱 𝔞 𝔩𝔦𝔱𝔱𝔩𝔢 𝔪𝔢𝔰𝔰𝔶, ℑ'𝔪 𝔰𝔲𝔯𝔢
 <p align="center"> <img width="400" height="440" src="https://files.catbox.moe/yjl9mg.webp"> </p>
 <p align= "center"> 𝒱𝑒𝑒/𝒱𝑒𝓁𝒾𝑜𝓃𝒶}$$
 <p align= "center"> <img width="30" height="30" src="https://64.media.tumblr.com/a9c2a164ac44f664a4805f5d9bb306e5/9cd7c663e33f0456-f4/s75x75_c1/d14c593fa5192c7d88fc613a89fda0bfd30afa7e.gifv"> </p>
